@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @C3LTI1
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on github
+- 📫 you can find me in discord @c3lti1
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I'm a femboy
